@@ -8,3 +8,4 @@ module 1 - complete - august 8 , 2026
 
 
 apllied for financial aid and waiting for it
+and started revising the notes

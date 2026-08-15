@@ -10,3 +10,4 @@ module 1 - complete - august 8 , 2026
 apllied for financial aid and waiting for it
 and started revising the notes
 still waiting for the financial aid
+mastercard cybersecurity virtual experience-forage| completed aug 2026

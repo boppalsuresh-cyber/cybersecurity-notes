@@ -12,3 +12,4 @@ and started revising the notes
 still waiting for the financial aid
 mastercard cybersecurity virtual experience-forage| completed aug 2026
  today learned CIA traid
+  and learn some basics

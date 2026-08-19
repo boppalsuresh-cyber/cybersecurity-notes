@@ -21,3 +21,4 @@
 - TryHackMe
 - Obsidian Notes
 withing a year I am gonna become the soc L1 analyst
+planing to change the career path

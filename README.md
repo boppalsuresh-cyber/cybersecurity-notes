@@ -23,3 +23,4 @@
 withing a year I am gonna become the soc L1 analyst
 planing to change the career path
 decided that I am gonna change my field
+fixed and now started learning java
